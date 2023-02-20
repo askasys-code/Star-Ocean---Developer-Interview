@@ -106,7 +106,7 @@
 
 ### There’s a lot of women in the party this time.
 
-> **Iwao:** Actually, there was one more character we had wanted to add. He appears in the story. It’s [Giotto Vandione](http://shmuplations.com/wp-content/uploads/2020/08/so406.jpg) from the En II artificial planet… he was supposed to join your party, and he would have balanced the party composition to 50/50 male-female. We ended up replacing him with a different character though.
+> **Iwao:** Actually, there was one more character we had wanted to add. He appears in the story. It’s Giotto Vandione from the En II artificial planet… he was supposed to join your party, and he would have balanced the party composition to 50/50 male-female. We ended up replacing him with a different character though.
 > 
 > **Kojima:** Yeah, he was going to be the last to join your party. That ordering sort of doomed him.
 
